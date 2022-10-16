@@ -1,7 +1,7 @@
 #### The Battlefront of Combating Misinformation and Coping with Media Bias
 
 ## Schedule
-August 14, 2022 (Sunday)
+November 20 (Sun) from 11:00 - 15:00 ET
 
 ## Table of Contents
 * [Abstract](#abstract)
